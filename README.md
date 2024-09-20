@@ -4,6 +4,7 @@
 -![image](https://github.com/user-attachments/assets/27aeca8d-d4bc-4b28-9749-4e9de023e4f5)
 
 ## resultado
--![image](https://github.com/user-attachments/assets/6e1b9456-f92f-4653-82e1-3c15e0b18561)
+-![image](https://github.com/user-attachments/assets/4bd00dff-2548-4bf5-9e3e-047efe856810)
+
 
 
